@@ -2,6 +2,7 @@
 - 👀 I’m interested in Cyber Security
 - 🌱 I’m currently based in Mumbai, India
 - 💞️ I’m looking for a job in Cyber security I have 3 years of experience in DFIR and SOC
+- I am currently serving notice period my last working day is 10th June 2022
 - 📫 How to reach me you can reach me out on frzkazi97@gmail.com and please if you want to ghost do not reach me at all!!
 
 <!---
